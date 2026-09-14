@@ -31,6 +31,6 @@ Out of Research I like:
 
 Let's stay in touch:
 - 📧 christinalizx at gmail.com
-- 💼 https://www.linkedin.com/in/zixi-li-3a12b118a/
+- 💼 https://www.linkedin.com/in/zixi-christina-li-3a12b118a/
 - Feel free to reach out for roles and insights.
 - If you are transiting or preparing to transit into the field of Technology from Social Science areas and have concerns/questions, feel free to reach out too :)
